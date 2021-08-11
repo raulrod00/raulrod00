@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @raulrod00
 - 👀 I’m interested in things
-- 🌱 I’m currently learning about torsional optokinetic nystagmua
+- 🌱 I’m currently learning about torsional optokinetic nystagmus
 - 💞️ I’m looking to collaborate on most things
 - 📫 How to reach me @raulrod00 on the socials.
 
